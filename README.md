@@ -1,2 +1,2 @@
 Official website of Beyond Alliance
-*for project purposes only
+<br>*for project purposes only
